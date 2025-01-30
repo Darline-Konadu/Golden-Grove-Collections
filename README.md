@@ -44,9 +44,19 @@ Checkout Page
 
 
 
+Group Picture
+![WhatsApp Image 2025-01-20 at 18 21 56_f28afc4c](https://github.com/user-attachments/assets/df448abe-9c6a-4c07-89ab-53cfbadda7bb)
+
 
 
 Contributors ;
-Darline Konadu Amoafo
-Richard Bright Asiedu Bentum
-Agyeibea Antwi-Baadu
+Godwin Odoom_22189192
+Irene Adu_22198877
+Nureat Sey Ahmed _22208705
+Chris Mawuko Tuffour _22039694
+Keren Asabea Acquaah _22038432
+Richard Asiedu Bentum_22039641
+Adwoa Asor Gyasi_22062839
+Agyeibea Antwi-Baadu_22019727
+Darline Konadu Amoafo_ 22068019
+Laudina Saifah _22045087
